@@ -1,3 +1,3 @@
 - I’m @skippzz
-- I make money sorta
+- I like money sorta
 - How to reach me?
